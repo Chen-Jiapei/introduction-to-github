@@ -1,2 +1,1 @@
-Jiapei Chen
-Jinshi He
+Jiapei Chen, Jinshi He
